@@ -1,4 +1,4 @@
-👋 Hi, I'm Madan Gopal Gupta, an Electrical Engineering graduate from Rewa Engineering College.
+👋 Hi, I'm Madan Gopal Gupta, an Electrical Engineer graduate from Rewa Engineering College.
 
 🔌 My education has provided a solid foundation in technical concepts and problem-solving.
 
